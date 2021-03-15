@@ -1,1 +1,0 @@
-# Trucks_logos_test3y5vnc
